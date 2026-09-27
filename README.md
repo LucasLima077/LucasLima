@@ -10,5 +10,5 @@
 ## Contatos
 -📩EMAIL: Lucaslima174721@gmail.com
 
--👉Linkedin:
+-👉Linkedin: https://www.linkedin.com/in/lucas-lima-8815663b7/
  
